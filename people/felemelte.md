@@ -25,3 +25,4 @@ Conjure wind, and by wind I mean it's only slightly less impractical than fannin
 Plantmancy, make plants move, -not grow-, move, low-hanging tree branches in your path? give 'em a little extra lift while you pass under, make that stubborn weed uproot itself, get that fruit to wiggle itself off its stem and out of the tree (or bend the stem until it breaks if you're That kind of person)
 
 ### Felemelte and the Sciame
+cockateil
